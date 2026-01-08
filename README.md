@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-AUGL060816HGRGRNA5
+AUGL060816HGRGRNA5
